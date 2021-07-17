@@ -1,9 +1,10 @@
 # cach-lam-banh-flan
+
 <p><strong>Cách làm bánh flan</strong> là công thức được rất nhiều người săn đón tìm kiếm với mong muốn có thể tự thực hiện tại nhà. Nếu bạn cũng muốn tạo nên những chiếc bánh flan mềm mại, thơm ngon, có vị béo ngậy hấp dẫn thì đừng vội bỏ qua bài viết dưới đây của Đầu Bếp Gia Đình nhé.</p>
-<p style="text-align: center;"><img src="https://daubepgiadinh.com/wp-content/uploads/2021/07/banh-flan-ngon.jpg" alt="bánh flan ngon" /><br /><em>Cách làm bánh flan sữa tươi tương đối đơn giản (Ảnh: Internet)</em></p>
+
 <p>Bánh flan là thành phẩm có sự kết hợp hòa quyện giữa các nguyên liệu như trứng gà, đường, sữa tươi… tạo nên hương vị thơm ngon khiến người ăn mê mẩn ngay từ lần đầu thưởng thức. Đồng thời đây cũng là món ăn có giá trị dinh dưỡng cao rất tốt cho sức khỏe. Cũng chính vì lý do này, bánh flan sữa tươi thường được các bà mẹ dùng làm món ăn dặm cho trẻ nhỏ nhà mình. Mặt khác, bạn cũng có thể chế biến món bánh này để chiêu đãi người thân vào mỗi dịp cuối tuần.</p>
 <p>Bánh flan hay còn được biết đến với nhiều tên gọi khác như bánh lăng hay caramen. Theo nhiều người loại bánh này có nguồn gốc xuất xứ từ ẩm thực châu Âu, cụ thể là nền ẩm thực đất nước Pháp. Tuy nhiên, thực chất bánh flan có nguồn gốc từ thời La Mã cổ đại. Món bánh này được người La Mã đem đến châu Âu trong cuộc hành trình chinh phục châu Âu của họ. Cho đến ngày nay, bánh flan được sử dụng phổ biến trên toàn thế giới.</p>
-<p style="text-align: center;"><img src="https://daubepgiadinh.com/wp-content/uploads/2021/07/nguon-goc.jpg" alt="nguồn gốc của bánh flan" /><br /><em>Nhiều giả thiết cho rằng bánh flan có nguồn gốc xứ xuất từ ẩm thực Pháp (Ảnh: Internet)</em></p>
+
 ##Cách làm bánh flan không rỗ, đơn giản nhất tại nhà##
 <h3><strong>Nguyên liệu</strong></h3>
 <ul>
@@ -25,22 +26,22 @@
 <h3><strong>Các bước làm</strong></h3>
 <h4>Làm caramel</h4>
 <p>Cho nước đun sôi để nguội vào nồi, cho thêm 50g đường cát trắng bắc lên bếp đun với lửa nhỏ. Trong quá trình đun, bạn dùng muỗng khuấy đều liên tục cho đến khi hỗn hợp chuyển sang màu cánh gián thì thêm nước cốt chanh vào khuấy đều rồi tắt bếp. Nhanh tay múc phần caramel trên cho vào hũ đựng bánh, lắc nhẹ để tạo thành lớp mỏng.</p>
-<p style="text-align: center;"><img src="https://daubepgiadinh.com/wp-content/uploads/2021/07/flan-caramen-truyen-thong.jpg" alt="flan caramen truyền thống" /><br /><em>Khuấy đều tay khi nấu caramel (Ảnh: Internet)</em></p>
+
 <h4>Làm bánh</h4>
 <p>Tách lòng đỏ và lòng trắng trứng gà để trong 2 bát riêng. Cho lòng đỏ trứng gà sang âu lớn, dùng phới lồng đánh trứng tan đều.</p>
-<p style="text-align: center;"><img src="https://daubepgiadinh.com/wp-content/uploads/2021/07/flan-10-trung.jpg" alt="flan 10 trứng" /><br /><em>Tách lòng đỏ và lòng trắng trứng gà để riêng (Ảnh: Internet)</em></p>
+
 <p>Cho 50g đường cát trắng còn lại và 500ml sữa tươi vào nồi, bắc lên bếp đun với lửa vừa. Khi hỗn hợp đạt nhiệt độ đủ ấm, bạn đổ từ từ vào âu trứng vừa đánh. Lưu ý, vừa đổ sữa vào vừa khuấy đều hỗn hợp.</p>
-<p style="text-align: center;"><img src="https://daubepgiadinh.com/wp-content/uploads/2021/07/cach-lam-banh-flan.jpg" alt="cách làm bánh flan" /><br /><em>Cho sữa ấm vào trứng vừa đánh đều (Ảnh: Internet)</em></p>
+
 <p>Cho hỗn hợp trên lược sơ qua bằng rây để đảm bảo thành phẩm bánh flan mịn màng. Cho 2 ống vani vào hỗn hợp vừa lược, trộn đều một lần nữa. Đổ hỗn hợp từ từ vào hũ làm bánh. Để bánh chín nở đẹp mắt, bạn chỉ nên đổ hỗn hợp bằng ¾ hũ, tránh trường hợp đổ quá đầy.</p>
-<p style="text-align: center;"><img src="https://daubepgiadinh.com/wp-content/uploads/2021/07/lam-voi-sua-tuoi-co-duong.jpg" alt="làm với sữa tươi có đường" /><br /><em>Đổ hỗn hợp trứng sữa vào ¾ hũ làm bánh flan (Ảnh: Internet)</em></p>
+
 <h4>Hấp bánh</h4>
 <p>Đổ lần lượt hỗn hợp sữa trứng vào hết tất cả các hũ đựng rồi xếp chúng vào nồi hấp bắc lên bếp để hấp. <strong>Hấp bánh flan bao nhiêu phút</strong>? Thông thường, quá trình hấp bánh flan chỉ mất khoảng 30-40 phút là đã thu được thành phẩm.</p>
-<p style="text-align: center;"><img src="https://daubepgiadinh.com/wp-content/uploads/2021/07/cach-lam-don-gian-voi-noi-com-dien.jpg" alt="cách làm đơn giản với nồi cơm điện" /><br /><em>Xếp hũ bánh flan vào nồi tiến hành hấp cách thủy 30-40 phút (Ảnh: Internet)</em></p>
+
 <h4>Hoàn thành và thưởng thức</h4>
 <ul>
 <li>Khi bánh chín, bạn vớt bánh flan ra ngoài đợi nguội bớt là đã có thể thưởng thức ngay hoặc bảo quản trong tủ lạnh 2 tiếng rồi mới thưởng thức.</li>
 </ul>
-<p style="text-align: center;"><img src="https://daubepgiadinh.com/wp-content/uploads/2021/07/flan-cafe.jpg" alt="flan cafe" /><br /><em>Trình bày bánh flan đẹp mắt cuốn hút người ăn (Ảnh: Internet)</em></p>
+
 <h4>Yêu cầu thành phẩm</h4>
 <p>Thực hiện bánh flan tại nhà cần đáp ứng một số yêu cầu cơ bản sau:</p>
 <ul>
@@ -71,21 +72,21 @@
 <h4>Các bước làm</h4>
 <p><strong>Cách làm thạch rau câu</strong></p>
 <p>Tách vỏ trái dừa, gọt sạch phần vỏ màu nâu còn trên cùi dừa, rửa sạch với nước. Khoét lỗ nhỏ trên trái dừa, lấy nước dừa ra ngoài để chuẩn bị thực hiện <strong>cách làm bánh flan dừa tại nhà</strong>.</p>
-<p style="text-align: center;"><img src="https://daubepgiadinh.com/wp-content/uploads/2021/07/flan-rau-cau-dua.jpg" alt="flan rau câu dừa" /><br /><em>Gọt sạch lớp vỏ xám bám bên ngoài cùi dừa (Ảnh: Internet)</em></p>
+
 <p>Rửa sạch lá dứa, cắt thành khúc ngắn, cho vào máy xay sinh tố. Thêm ít nước lọc rồi tiến hành xay nhuyễn, lọc lấy phần nước cốt lá dứa.</p>
-<p style="text-align: center;"><img src="https://daubepgiadinh.com/wp-content/uploads/2021/07/cach-lam-voi-la-dua.jpg" alt="cách làm với lá dứa" /><br /><em>Xay lá dứa để làm thạch rau câu (Ảnh: Internet)</em></p>
+
 <p>Hòa 1/3 nước dừa và nước cốt lá dứa và 10g bột rau câu vào nồi, khuấy đều, bắc lên bếp đun sôi. Khi thạch dẻo, bạn tắt bếp, cho hỗn hợp ra khay rồi để trong ngăn mát tủ lạnh.</p>
 <p>Sau khi thạch đông cứng, bạn lấy ra ngoài, cắt thành hạt lựu nhỏ làm<strong> bánh flan dừa lá dứa</strong>.</p>
-<p style="text-align: center;"><img src="https://daubepgiadinh.com/wp-content/uploads/2021/07/cach-lam-flan-nhieu-tang.jpg" alt="cách làm flan nhiều tầng" /><br /><em>Đổ rau câu ra khay rồi cho vào ngăn mát tủ lạnh (Ảnh: Internet)</em></p>
+
 <p><strong>Làm flan trứng</strong></p>
 <p>Cho 15g bột rau câu còn lại cùng sữa tươi, đường, trứng gà vào âu lớn, khuấy đều rồi lọc hỗn hợp qua rây để đảm bảo thành phẩm có được sự mịn màng.</p>
 <p>Cho hỗn hợp vào nồi, bắc lên bếp đun với lửa vừa khoảng 5-10 phút, tắt bếp.</p>
-<p style="text-align: center;"><img src="https://daubepgiadinh.com/wp-content/uploads/2021/07/flan-5-trung-cho-4-nguoi.jpg" alt="flan 5 trứng cho 4 người" /><br /><em>Cho trứng gà, bột rau câu, đường, sữa vào đánh đều (Ảnh: Internet)</em></p>
+
 <p><strong>Hấp<br /></strong></p>
 <p>Cho thạch lá dứa đã cắt hạt lựu vào hỗn hợp làm bánh flan vừa nấu trên, khuấy cho thật đều. Cho từ từ hỗn hợp này vào trong phần ruột rỗng của trái dừa rồi đặt trong nồi hấp cách thủy khoảng 90 phút.</p>
-<p style="text-align: center;"><img src="https://daubepgiadinh.com/wp-content/uploads/2021/07/flan-trai-dua-thach-la-dua.jpg" alt="flan trái dừa thạch lá dứa" /><br /><em>Cho hỗn hợp vào trong trái dừa rồi tiến hành hấp cách thủy (Ảnh: Internet)</em></p>
+
 <p>Lấy trái dừa ra cho vào ngăn mát tủ lạnh, khi thưởng thức chỉ cần lấy ra cắt thành miếng nhỏ.</p>
-<p style="text-align: center;"><img src="https://daubepgiadinh.com/wp-content/uploads/2021/07/flan-trai-dua.jpg" alt="flan trái dừa" /><br /><em>Hoàn thành cách làm bánh flan rau câu dừa đơn giản (Ảnh: Internet)</em></p>
+
 <p><strong>Yêu cầu thành phẩm</strong></p>
 <p>Thực hiện <strong>cách làm bánh flan trái dừa thạch lá dứa </strong>tại nhà đòi hỏi thành phẩm cần:</p>
 <ul>
@@ -111,13 +112,13 @@
 </ul>
 <h4>Các bước làm</h4>
 <p>Cho đường vào nồi cùng 1 ít nước, bắc lên bếp đun với lửa nhỏ, khuấy đều cho đến khi hỗn hợp chuyển sang màu vàng cánh gián thì cho thêm ít nước và nước cốt chanh vào cùng. Đổ caramel vào khuôn làm bánh.</p>
-<p style="text-align: center;"><img src="https://daubepgiadinh.com/wp-content/uploads/2021/07/cach-lam-duong-caramen-cho-banh-flan.jpg" alt="cách làm đường caramen cho bánh flan" /><br /><em>Cho caramel vào đáy khuôn làm bánh (Ảnh: Internet)</em></p>
+
 <p>Cho sữa đặc, sữa tươi vào 500ml nước vào nồi, bắc lên bếp nấu với lửa nhỏ. Đây là bước quan trọng trong <strong>cách làm bánh flan hấp cách thủy</strong>, bạn cần chú ý khuấy liên tục cho đến khi sữa ấm thì tắt bếp.</p>
-<p style="text-align: center;"><img src="https://daubepgiadinh.com/wp-content/uploads/2021/07/cong-thuc-lam-bang-sua-dac-sua-tuoi.jpg" alt="công thức làm bằng sữa đặc và sữa tươi" /><br /><em>Nấu sữa ấm chứ không cần phải sôi (Ảnh: Internet)</em></p>
+
 <p>Tách lấy lòng đỏ trứng gà rồi cho vào âu lớn cùng 2 ống vani đánh cho thật đều rồi rây trực tiếp vào nồi sữa ấm, khuấy nhẹ tay. Đổ hỗn hợp trên vào khuôn bánh đã có sẵn lớp caramel.</p>
-<p style="text-align: center;"><img src="https://daubepgiadinh.com/wp-content/uploads/2021/07/flan-bi-do-cho-be.jpg" alt="flan bí đỏ cho bé" /><br /><em>Cho hỗn hợp trứng sữa lên trên lớp caramel (Ảnh: Internet)</em></p>
+
 <p>Cho khuôn bánh đi hấp cách thủy khoảng 30 phút là đã hoàn thành<strong> công thức làm bánh flan mềm mịn</strong> theo kiểu truyền thống.</p>
-<p style="text-align: center;"><img src="https://daubepgiadinh.com/wp-content/uploads/2021/07/cach-lam-khong-can-hap.jpg" alt="cách làm bánh không cần hấp" /><br /><em>Cho khuôn bánh vào hấp cách thủy khoảng 30 phút (Ảnh: Internet)</em></p>
+
 <h3><strong>Cách làm flan phô mai</strong></h3>
 <h4>Nguyên liệu</h4>
 <ul>
@@ -133,13 +134,13 @@
 </ul>
 <h4>Các bước thực hiện</h4>
 <p>Dùng các nguyên liệu đường, nước, nước cốt chanh thực hiện <strong>cách thắng caramen làm bánh flan </strong>tương tự như trên rồi đổ vào khuôn. Cho Cream cheese nồi, đun nóng rồi dùng muỗng khuấy nhẹ để phô mai tan chảy hoàn toàn.</p>
-<p style="text-align: center;"><img src="https://daubepgiadinh.com/wp-content/uploads/2021/07/cach-lam-voi-pho-mai-lo-nuong.jpg" alt="cách làm với phô mai không cần lò nướng" /><br /><em>Hấp cho phô mai tan chảy đều (Ảnh: Internet)</em></p>
+
 <p>Đập trứng vào bát, đánh đều bằng phới lồng, lược qua rây là <strong>cách làm bánh flan vị phô mai </strong>đảm bảo thành phẩm mịn màng.</p>
-<p style="text-align: center;"><img src="https://daubepgiadinh.com/wp-content/uploads/2021/07/flan-cho-be-10-thang-tuoi.jpg" alt="flan cho bé 10 tháng tuổi" /><br /><em>Đánh trứng tan đều (Ảnh: Internet)</em></p>
+
 <p>Cho sữa tươi, Whipping cream và sữa đặc vào nồi, khuấy đều, bắc lên bếp đun với lửa vừa. Hỗn hợp vừa sôi nhẹ, bạn tắt bếp. Cho ½ hỗn hợp trên vào bát trứng, khuấy đều.</p>
-<p style="text-align: center;"><img src="https://daubepgiadinh.com/wp-content/uploads/2021/07/cach-lam-ngon-khong-tanh.jpg" alt="cách làm ngon và không tanh" /><br /><em>Nấu hỗn hợp vừa sôi nhẹ thì tắt bếp (Ảnh: Internet)</em></p>
+
 <p>Cho Cream cheese đã được đun chảy vào ½ hỗn hợp sữa ấm còn lại. Đổ từ từ hỗn hợp sữa trứng vào hỗn hợp sữa ấm, khuấy đều. Cho từ từ hỗn hợp vào trong khuôn rồi hấp khoảng 30 – 40 phút. Bánh chín, bạn lấy ra đợi nguội thì cho vào ngăn mát tủ lạnh đã có có món <strong>bánh flan phô mai cho bé</strong>.</p>
-<p style="text-align: center;"><img src="https://daubepgiadinh.com/wp-content/uploads/2021/07/cach-hap-bang-noi-com-dien.jpg" alt="cách hấp bằng nồi cơm điện" /><br /><em>Đợi bánh flan phô mai nguội cho vào ngăn mát của tủ lạnh (Ảnh: Internet)</em></p>
+
 <h2><strong>Thông tin thêm</strong></h2>
 <p><strong>Tỷ lệ trứng và sữa khi làm bánh flan</strong></p>
 <ul>
@@ -177,6 +178,6 @@
 <li>Bánh flan được làm từ trứng, sữa đặc và sữa tươi là chính. Bánh được biến tấu thành nhiều hương vị khác nhau như caramel, phô mai, cà phê, trà xanh, dâu… tuy nhiên cách thực hiện là giống nhau. Bánh flan được làm chín bằng cách hấp cách thủy hoặc nướng trong lò vi sóng.</li>
 <li>Bánh pudding được làm từ các nguyên liệu chính như sữa, bột, đường, trứng. Pudding có tính xốp và dính hơn so với bánh flan. Bánh có độ kết dính nhờ vào thành phần gelatin.</li>
 </ul>
-<p style="text-align: center;"><img src="https://daubepgiadinh.com/wp-content/uploads/2021/07/cong-thuc-lam-mem-min.jpg" alt="công thức làm flan mềm mịn" /><br /><em>Bánh flan có nhiều dưỡng chất rất tốt cho sức khỏe (Ảnh: Internet)</em></p>
+
 <p>Như vậy, với một số nguyên liệu đơn giản là bạn đã có thể hoàn thành <strong>cách làm bánh flan</strong> ngay tại nhà. Đồng thời, Đầu Bếp Gia Đình còn cung cấp thêm 3 công thức làm bánh flan (truyền thống, trái dừa thạch lá dứa và phô mai).</p>
 <p>Hi vọng, bạn có thể vào bếp trổ tài chế biến chiêu đãi cả nhà từng loại bánh flan nhé. Chắc chắn, mọi người sẽ dành lời khen không ngớt dành cho món bánh ngọt ngào này của bạn đấy. Chúc các bạn thực hiện thành công!</p>
